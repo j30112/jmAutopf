@@ -3,4 +3,4 @@
 
 포트폴리오 다운로드
 [정성희_J&m포트폴리오.pdf](https://github.com/user-attachments/files/17743259/_J.m.pdf)
-![Uploading image.png…]()
+
